@@ -6,7 +6,7 @@ Need help with Purely? We're here to help.
 
 ## 📧 Contact Support
 
-**Email:** support@purely.app
+**Email:** nehruj22@gmail.com
 
 **Response Time:** Within 48 hours
 
